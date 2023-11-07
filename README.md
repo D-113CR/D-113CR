@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheMindLord
+- 👋 Hi, I’m @D-113CR
 - 👀 I’m interested in anything computers
 - 🌱 I’m currently learning industrial I.T
 
